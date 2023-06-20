@@ -1,1 +1,1 @@
-My birthday is in July
+My birthday is July 31st
